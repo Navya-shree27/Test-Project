@@ -1,5 +1,4 @@
-# navya-alfa
-# Team Collaboration Project
+# GIT project                            # Team Collaboration Project
 
 ### Welcome to our first team collaboration project! 🎉
 
