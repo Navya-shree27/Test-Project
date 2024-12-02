@@ -8,7 +8,7 @@ We are excited to work together and learn from each other as a team.
 1. Navya Shree  
 2. Alfa S Nadaf
 3. Akshatha B B
-4. Druthi  
+4. Druthi N 
 5. Aditi A
 6. Bhagya Hugar  
 
