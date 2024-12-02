@@ -8,11 +8,13 @@ We are excited to work together and learn from each other as a team.
 1. Navya Shree  
 2. Alfa S Nadaf
 3. Akshatha B B
-4. Druthi N 
+4. Dhruti N 
 5. Aditi A
 6. Bhagya Hugar  
 
 Let's make this project a success! 🚀
 
 Teamwork makes the dream work..!!
+
+"Coming together is a beginning, Staying together is progress, and working together is success."
 
