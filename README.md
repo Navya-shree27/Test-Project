@@ -17,4 +17,5 @@ Let's make this project a success! 🚀
 Teamwork makes the dream work..!!
 
 "Coming together is a beginning, Staying together is progress, and working together is success."
+Together we make
 
