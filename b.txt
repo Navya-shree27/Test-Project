@@ -1,1 +1,2 @@
-git collab merge
+git collab merge, we did a mini project
+
