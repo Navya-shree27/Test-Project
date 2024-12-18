@@ -10,7 +10,8 @@ We are excited to work together and learn from each other as a team.
 3. Akshatha B B
 4. Dhruti N 
 5. Aditi A
-6. Bhagya Hugar  
+6. Bhagya Hugar
+7. Anushree H S  
 
 Let's make this project a success! 🚀
 
